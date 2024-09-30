@@ -1,0 +1,13 @@
+I Emmaanuel iji Sunday- 👋 Hi, I’m @Emmanuelblaq
+I am interested in GitHub community, i want too be with them- 👀 I’m interested in ...
+I'm currently leaning from this site- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on my access account from any activity that connected with ith me
+- 📫 How to reach me ... emmanuelblaq7@gmail.com or cellular number 09164482617
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
+
+<!---
+emmanuelblaq7@gmail.com
+/Emmanuelblaq is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
